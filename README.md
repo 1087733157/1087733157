@@ -1,16 +1,14 @@
-## Hi there 👋
+##Bem vindos ao meu perfil 🌈
 
-<!--
-**1087733157/1087733157** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Roi, bâo? me xamo di _EVE_
+Pronouns: _She/They
 
-Here are some ideas to get you started:
+How to reach me: 📫
+*00001087733157sp@al.educacao.sp.gov.br*
+(não fale comigo)
+  
+- ⚡ Fun fact: _Noradrenalina e cafeina_ enjetada na *veia*!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ![](https://media1.tenor.com/m/FKC7YS6Ll2EAAAAC/angry-anime.gif)
+
+
